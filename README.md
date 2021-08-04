@@ -1,4 +1,4 @@
-- 👋 Hi, I’m the only BananaMonkey
+- 🐵 Hi, I’m the only BananaMonkey
 - 👀 I’m interested in EATING BANANA
 - 🌱 I’m currently learning HOW TO PLANT BANANA
 
